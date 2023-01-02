@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Shaunuss
+- 👀 I’m interested in 3d printing
+- 💞️ I’m looking to collaborate on 3d printing
